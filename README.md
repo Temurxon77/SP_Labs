@@ -6,4 +6,4 @@ All labs which pushed to this repository all of them for IUT Students, open sour
 Sharing Programs are strongly PROHIBITED!
 
 
-Temurxon77 all rights Reserved.
+Temurxon77@ all rights Reserved.
